@@ -1,4 +1,0 @@
-si
-jamiton
-yuca
-legarda
